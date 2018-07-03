@@ -7,5 +7,10 @@ and to be used on social media.
 
 * Alex Weeks
 
-* Joel Otchere-Baffour
+* Joel 
 
+* Bernard Atiemo Asare
+
+* bill
+
+* Esther
